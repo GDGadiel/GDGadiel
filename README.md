@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GDGadiel
+- 👀 I’m interested in the videogames
+- 🌱 I’m currently learning Electronic
+- 💞️ I’m looking to collaborate on Electronic
